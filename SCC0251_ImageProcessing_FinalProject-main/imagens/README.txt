@@ -1,0 +1,1 @@
+Imagens tiradas de: http://www.dgi.inpe.br/CDSR/
